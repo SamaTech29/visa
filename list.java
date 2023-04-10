@@ -2,3 +2,5 @@
 Sama 
 Shella 
 Florence
+Chi
+Samgwa'a 
